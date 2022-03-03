@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @PGaJK
+- 👀 I’m interested in economy, philosophy, psychology
+- 🌱 I’m currently learning Jung, AÏON
+- 📫 How to reach me on Mastodon
+- https://mastodon.top/@PG_JK/
